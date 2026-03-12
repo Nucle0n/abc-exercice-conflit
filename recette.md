@@ -1,4 +1,4 @@
 #Recette de la potion magique
 
 1. Eau de Source de montagne
-2. Bourse de dragon
+2. Oeil de cyclope
